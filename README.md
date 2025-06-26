@@ -29,7 +29,7 @@
 
 点击访问：<a href="https://cg55.pages.dev/">热门事件在线吃瓜</a>
 
-点击访问：<a href="https://hl66.pages.dev/"黑料不打烊</a>
+点击访问：<a href="https://hl66.pages.dev/">黑料不打烊</a>
 
 点击访问：<a href="https://hl65.pages.dev/">今日黑料最新反差</a>
 
